@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Unbeatencoder29
+- 👀 I’m interested in gaming, and technology
+- 🌱 I’m currently learning computer science
+- 💞️ I’m looking to collaborate on gaming
+- 😄 Pronouns: Unbeaten
